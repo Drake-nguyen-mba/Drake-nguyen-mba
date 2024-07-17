@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basic business or NGO analysis project
 - 📫 How to reach me - email me at dzunghoang010316@gmail.com
 - 😄 Pronouns: Mr
-- ⚡ Fun fact: I studied chemistry 13 years ago and now I've changed my career to business and marketing for 5 years. Nothing impossible, you can try a new career path if you have enough motivation!
+- ⚡ Fun fact: I studied chemistry 13 years ago and worked in laboratory from 2012 to 2014. Now I've changed my career to business and marketing for 10 years. Nothing impossible, you can try a new career path if you have enough motivation!
 
 <!---
 Drake-nguyen-mba/Drake-nguyen-mba is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
